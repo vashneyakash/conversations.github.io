@@ -7,7 +7,10 @@ date: 2022-06-06
 To be bale to speak clearly in a conversation. You should have a crisp knowledge of your favourite movies, games, series, anime, music ,etc.
 
 ### My favourite movie
-My favourite movie is inception. I was mind bogling movie. I like leonardo di caprio movies.
+My favourite movie is inception. I was mind bogling movie. I like leonardo di caprio movies. Like Shutter Island, The Matrix, departed ,etc.
+
+### My favourite food
+I live idali, poha, pulao, maggi etc
 
 ### Good questions to ask
 - What qualities do you see in your better half?
