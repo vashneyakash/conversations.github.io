@@ -16,6 +16,9 @@ I love haikyuu, Its about volleyball. It is fantastic. I love Full Metal Alchami
 ### My favourite food
 I love idali, poha, pulao, maggi etc.
 
+### My favourite songs
+I like linking park songs. In hindi I like old kishore kumar songs
+
 ### Good questions to ask
 - What qualities do you see in your better half?
 - Would you be confertable living with in-laws?
