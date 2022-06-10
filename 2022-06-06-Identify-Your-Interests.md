@@ -17,7 +17,23 @@ I love haikyuu, Its about volleyball. It is fantastic. I love Full Metal Alchami
 I love idali, poha, pulao, maggi etc.
 
 ### My favourite songs
-I like linking park songs. In hindi I like old kishore kumar songs
+I like linking park songs.
+1. Numb
+2. New Devide
+3. In the End
+4. Faint
+5. What I have done
+
+In hindi I like old kishore kumar songs
+1. Tere Bina Zindagi Se
+2. Tum Aa Gaye Ho Noor Aa Gaya
+3. Mere raske Qamar
+4. Yeh Chand Sa Roshan Chehra
+5. Ye parda hatado jara mukhda dikha do hum tum pe Marne wale hai koi gair nahi
+6. Is Mod Se Jate Hain
+7. Tera Bina Zindagi Se
+8. ankhiyon ke jharokhon se
+9. Mai haha tu vaha 
 
 ### Good questions to ask
 - What qualities do you see in your better half?
