@@ -11,7 +11,9 @@ My favourite movie is inception. I was mind bogling movie. I like leonardo di ca
 I also liked The Matrix, lucy ,etc. I like all sci-fi movies with action.
 
 ### My favourite Anime
-I love haikyuu, Its about volleyball. It is fantastic. I love Full Metal Alchamist.
+I love haikyuu, Its about volleyball. It is fantastic. In a sport where height is considered as the biggest weapon but the main character is determined not to let height get in his way. 3rd season was amazing as their opponents were individually very much stronger, they went to nationals multiple times. But, they used combinations, time-lag, quicks and many other differents attacks to overhelm their opponenets. I loved it. I have watched this anime multiple times. <br>
+
+I love Full Metal Alchamist.
 
 ### My favourite food
 I love idali, poha, pulao, maggi etc.
