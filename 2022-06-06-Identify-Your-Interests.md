@@ -17,6 +17,8 @@ I love Full Metal Alchamist. It sci-fictional fantasy series. There is alcemy wh
 
 I loved Naruto also. It is also sci-frictional fantasy series. It is inspiring.
 
+In general I love inspiring stories.
+
 ### My favourite food
 I love idali, poha, pulao, maggi etc.
 
