@@ -41,6 +41,9 @@ In hindi I like old kishore kumar songs
 8. ankhiyon ke jharokhon se
 9. Mai haha tu vaha 
 
+### My career goals
+I want to continue in software engineering role. I like coding and automating stuff. I have a personal blogs site
+
 ### Good questions to ask
 - What qualities do you see in your better half?
 - Would you be confertable living with in-laws?
