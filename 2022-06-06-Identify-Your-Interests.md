@@ -6,6 +6,16 @@ date: 2022-06-06
 ### Why should you indentify your interests?
 To be bale to speak clearly in a conversation. You should have a crisp knowledge of your favourite movies, games, series, anime, music ,etc.
 
+### Conversation starters
+1. Did you have dinner? or Have you had your dinner?
+2. When do you go for gym?
+3. What else we can discuss?
+4. What last movie did you watch?
+5. How was your day?
+6. Can we do call few more times? It will help to understand each other. 
+7. I am paying for lunch.
+8. What do you do on weekends?
+
 ### My favourite movie
 My favourite movie is inception. I was mind bogling movie. I like leonardo di caprio movies. Like Shutter Island, departed ,etc.
 I also liked The Matrix, lucy ,etc. I like all sci-fi movies with action.
