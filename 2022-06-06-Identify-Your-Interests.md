@@ -7,14 +7,16 @@ date: 2022-06-06
 To be bale to speak clearly in a conversation. You should have a crisp knowledge of your favourite movies, games, series, anime, music ,etc.
 
 ### Conversation starters
-1. Did you have dinner? or Have you had your dinner?
-2. When do you go for gym?
-3. What else we can discuss?
-4. What last movie did you watch?
-5. How was your day?
-6. Can we do call few more times? It will help to understand each other. 
-7. I am paying for lunch.
-8. What do you do on weekends?
+1. Did you eat dinner? or Did you have dinner? or Have you had your dinner?
+  - Yes, I have done dinner. My dinner was dal bati.
+2. What did you eat?
+3. When do you go for gym?
+4. What else we can discuss?
+5. What last movie did you watch?
+6. How was your day?
+7. Can we do call few more times? It will help to understand each other. 
+8. I am paying for lunch.
+9. What do you do on weekends?
 
 ### My favourite movie
 My favourite movie is inception. I was mind bogling movie. I like leonardo di caprio movies. Like Shutter Island, departed ,etc.
@@ -56,6 +58,7 @@ I want to continue in software engineering role. I like coding and automating st
 
 ### Good questions to ask
 - What qualities do you see in your better half?
+  My Family is looking for an educated working person. How is humble not only with family members but also with maids and workers. Who respects my parents. I will also respect her parents. Who is comfertable living with my parents. My parents will move with me in near future. For next few years my father will continue to run business but he will enventually move with me in Bangalore. They are of the opinion that my wife should work and they would do everything to make confertable for my wife to work.
 - Would you be confertable living with in-laws?
 - What type of movies do you like?
 - 
